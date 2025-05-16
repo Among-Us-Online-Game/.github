@@ -2,6 +2,8 @@
 
 **Among Us Unblocked** is an **epic online multiplayer** game that blends strategy, mystery, and deception into one thrilling space adventure. Whether you're a **fearless crewmate** or a **dark impostor**, every match is a test of your survival skills, quick thinking, and bluffing abilities.
 
+## <a href="https://1kb.link/N7S5jE">👉 Play Among Us Unblocked Games NOW 👈</a>
+
 ### 🎮 What Makes Among Us Unblocked So Addictive?
 
 * 🕹️ **Unblocked & Accessible:** Play **Among Us** anywhere — at school, work, or home — with no restrictions. No downloads. No installs. Just click and play.
@@ -35,4 +37,4 @@ Stuck behind a firewall or content filter? **Among Us Unblocked** is your perfec
 No download. No limits. Just a browser and your instincts.
 **Join the ultimate space mystery** and find out: **Are you the crewmate… or the impostor?**
 
-👉 **Play Now** and experience the **legendary battle of trust and betrayal**!
+👉 **<a href="https://1kb.link/N7S5jE"> Play Now </a>** and experience the **legendary battle of trust and betrayal**!
